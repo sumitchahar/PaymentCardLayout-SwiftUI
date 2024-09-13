@@ -8,3 +8,12 @@ Just focus point to -> Master Card -> Design -> All information with right or an
 
 
 ![PaymentScreenPDF 002](https://github.com/user-attachments/assets/ab544625-3b2b-4f99-a855-b90d79085d96)
+
+
+For better understanding, just use below link to find more information.
+
+Linkedin Profile: https://www.linkedin.com/in/sumit-chahar-2956a513b/
+
+YouTubelink: 
+
+Medium link: https://medium.com/p/01c3547cc307
